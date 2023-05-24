@@ -1,1 +1,0 @@
-# vallartagatuscarl.github.io
